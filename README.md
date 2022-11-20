@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @atakancokdonmez
-- 🌱 I’m currently learning android
 - 📫 How to reach me: rootatakan@gmail.com
 - Linkedin: https://www.linkedin.com/in/atakan-cokdonmez-03b581217/
 - Twitter: https://twitter.com/rootatakan
